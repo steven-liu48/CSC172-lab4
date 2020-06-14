@@ -1,11 +1,7 @@
 Xiaoxiang "Steven" Liu
-xliu102@u.rochester.edu
-585-201-2325
 MW 6:15PM - 7:30PM
 
-Lab Partner:
 Winnie Wan
-wwan5@u.rochester.edu
 MW 3:30PM - 4:45PM
 
 
