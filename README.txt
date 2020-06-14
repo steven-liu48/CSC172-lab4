@@ -1,4 +1,4 @@
-Xiaoxiang "Steven" Liu
+Steven Liu
 MW 6:15PM - 7:30PM
 
 Winnie Wan
